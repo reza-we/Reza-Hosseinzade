@@ -26,9 +26,9 @@ I am a lifelong learner who thrives on discovering new technologies and expandin
 ## 🌐 Let's Connect:
 I would love to connect with like-minded individuals and collaborate on exciting projects! Feel free to reach out or connect with me on social media:
 
-- **Telegram:** [Reza on Telegram](https://www.t.me/Rech_hz) 📱
-- **Instagram:** [Reza on Instagram](https://www.instagram.com/reza_w.e?igsh=dzdqdGNlMDcxOTU3) 📸
-- **GitHub:** [Reza on GitHub](https://www.github.com/Reza-we) 🐱‍💻
-- **Email:** [s.reza85hosseinzade@gmail.com](mailto:s.reza85hosseinzade@gmail.com) ✉️
+- **Telegram:** [S.Reza](https://www.t.me/Rech_hz) 📱
+- **Instagram:** [Reza_w.e](https://www.instagram.com/reza_w.e?igsh=dzdqdGNlMDcxOTU3) 📸
+- **GitHub:** [Reza-we](https://www.github.com/Reza-we) 🐱‍💻
+- **Email:** [s.reza85hosseinzade](mailto:s.reza85hosseinzade@gmail.com) ✉️
 
 Thank you for visiting my profile! Let’s create something amazing together! 🚀
